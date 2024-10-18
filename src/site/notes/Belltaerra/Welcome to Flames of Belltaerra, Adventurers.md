@@ -11,7 +11,7 @@ But as dark shadows gather, so too do unlikely heroes arise. Will you uncover th
 The fate of Belltaerra lies in your hands, adventurers. Welcome to **The Flames of Belltaerra** – where history, magic, and destiny collide, and your choices will shape the future of a broken realm.
 
 **NOTE - MORE INFO WILL BE ADDED AS IT BECOMES RELEVANT**
-## Use the sidebar to navigate!!!
+## Use the sidebar to navigate!!! (There are a few broken links -- The duller ones -- don't click em)
 
 
 
