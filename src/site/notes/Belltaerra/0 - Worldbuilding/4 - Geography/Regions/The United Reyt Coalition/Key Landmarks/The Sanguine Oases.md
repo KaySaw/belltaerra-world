@@ -1,0 +1,5 @@
+---
+{"dg-publish":true,"permalink":"/belltaerra/0-worldbuilding/4-geography/regions/the-united-reyt-coalition/key-landmarks/the-sanguine-oases/"}
+---
+
+The **Sanguine Oases** is the jewel of vice within the United Reyt Coalition, a place where decadence and desire converge amidst the sweltering heat of the Reyt Desert. Known as the most notorious red-light district on the continent, it serves as a sanctuary for indulgence, attracting those with a thirst for forbidden pleasures, fleeting euphoria, and hedonistic release. Nestled amidst a small cluster of natural oases, this district is a rare respite from the desert's harshness, transformed into an opulent haven of indulgence and an unrivaled realm of debauchery, where the mundane world feels like a distant memory and boundaries are abandoned in pursuit of freedom and gratification. 

@@ -1,0 +1,9 @@
+---
+{"dg-publish":true,"permalink":"/belltaerra/0-worldbuilding/4-geography/regions/the-hallowed-lands-of-sey-nar/key-landmarks/the-grand-cathedral-of-sey-naris/"}
+---
+
+The **Grand Cathedral of Sey'naris**, perched atop the central hill of the **Luminous City**, is an awe-inspiring structure and a beacon of radiant energy. The cathedral’s white stone walls glow with a soft, ethereal light that illuminates the surrounding cityscape. Its towering spires reach toward the sky, with intricate carvings depicting the cycle of life and death as preached by Sey'na, the goddess the cathedral is dedicated to. At night, radiant energy vapors rise from the ground around the building, forming translucent pillars of light that stretch upwards, adding to its otherworldly presence.
+
+The interior is just as grand, with vaulted ceilings adorned with shimmering mosaics of celestial bodies and glowing streams of energy representing the ley lines. At the center of the cathedral is the **Chamber of the Cycle**, a circular altar where rituals honoring the cycle of life and death are performed. The ley energy within the cathedral is so potent that those entering often feel a deep sense of peace and connection to the flow of magic and nature.
+
+Despite its serene atmosphere, the Grand Cathedral holds an enigmatic power. It is a place of worship, but also a hub for magical research conducted by the clergy and mages of Sey'naris, who strive to maintain the balance of the ley nexus beneath. This dual purpose makes the cathedral not only a spiritual heart of the Hallowed Lands but also a focal point for arcane study and control over the powerful energies that sustain the entire region.

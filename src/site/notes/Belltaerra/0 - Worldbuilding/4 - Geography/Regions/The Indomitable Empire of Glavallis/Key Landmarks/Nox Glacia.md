@@ -1,0 +1,7 @@
+---
+{"dg-publish":true,"permalink":"/belltaerra/0-worldbuilding/4-geography/regions/the-indomitable-empire-of-glavallis/key-landmarks/nox-glacia/"}
+---
+
+At the heart of Glavallis lies its capital, **Nox Glacia**, a city like no other. Tucked within the towering **Shield of Belltaerra** mountain range, Nox Glacia is more fortress than metropolis. Its towering stone and iron structures rise from the icy terrain, with much of the city built directly into the mountainside, giving it an imposing, secretive atmosphere. The city is shrouded in shadow for most of the day, as the towering peaks surrounding it block out much of the sunlight, casting it into perpetual twilight.
+
+The city is heavily fortified, with thick walls and a single, highly guarded entrance. Outsiders are rarely allowed past the gates, and those who do often speak of the city's stark, militaristic nature. Life in Nox Glacia revolves around the preservation of the empire’s might and security. The streets are lined with grand armories, barracks, and strategic outposts, all working in unison to protect the heart of Glavallis. The grand citadel, where the royal family resides, looms over the city, accessible only to the most trusted members of the empire's elite. The regent of Glavallis, never seen in public, governs from within this massive stronghold, further adding to the city’s sense of impenetrability and secrecy.
