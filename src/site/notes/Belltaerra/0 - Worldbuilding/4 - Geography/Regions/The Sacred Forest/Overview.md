@@ -2,6 +2,7 @@
 {"dg-publish":true,"permalink":"/belltaerra/0-worldbuilding/4-geography/regions/the-sacred-forest/overview/"}
 ---
 
+
 The Sacred Forest, nestled in the northern reaches of Belltaerra, is a realm of unparalleled beauty and untold mysteries. Enshrouded in the mists of legend and myth, this ancient evergreen woodland is a haven for fey descendants and a sanctuary for those attuned to the natural world.
 --------------------------------------------------------------------------------------------------------------------------------
 
